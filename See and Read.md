@@ -1,0 +1,12 @@
+[[Analise SWOT]]
+[[Conseguir um emprego novo]]
+[[Ikigai]]
+[[Mind dump]]
+[[brainwriting]]
+[[C-Map tools]]
+[[Concept maps]]
+[[Desenvolvimento de farol automotivo]]
+[[023 - VER E LER/Dragon dreaming]]
+[[Dragon dreaming Brasil]]
+[[Top Temas Obsidian]]
+
